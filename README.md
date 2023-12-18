@@ -1,1 +1,1 @@
-# DOTS_terms
+# Privacy Policy in Japanese
